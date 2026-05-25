@@ -17,4 +17,6 @@ Here are some ideas to get you started:
 <img width="1200" height="750" alt="6c450627aa5f4f01a67e75825b413b98" src="https://github.com/user-attachments/assets/a4d0783c-1aee-46fd-b580-5f39cd1230f2" />
  ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀️⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀𝒋𝒐𝒊𝒏 𝒖𝒔! 𝒂𝒕 ~𝑷𝒂𝒓𝒂 𝑷𝒂𝒓𝒂 𝑲𝒊𝒔𝒔𝒂𝒕𝒆𝒏~ ᓚᘏᗢ 𝒕𝒐𝒅𝒂𝒚!
 
-![Uploading Neko.Para.full.2230313.jpg…]()
+<img width="1000" height="994" alt="vasnnnnnnn" src="https://github.com/user-attachments/assets/13b36566-e147-466f-a5f5-28c05e465551" />
+
+
