@@ -15,7 +15,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
  ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀️⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀𝒋𝒐𝒊𝒏 𝒖𝒔! 𝒂𝒕 ~ 𝑷𝒂𝒓𝒂 𝑷𝒂𝒓𝒂 𝑲𝒊𝒔𝒔𝒂𝒕𝒆𝒏 ~ ᓚᘏᗢ 𝒕𝒐𝒅𝒂𝒚! ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀️⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀
-<img width="500" height="500" alt="nekopara-chocola-complete-figure-442883" src="https://github.com/user-attachments/assets/d21a2dea-1142-4297-8074-56bc4a07330f" />
+<img width="480" height="431" alt="da230ff6-de22-11ef-bcc8-0242ac120004_480x480" src="https://github.com/user-attachments/assets/9de0c08a-3685-4ff2-838b-1c47b0b6d0c9" />
+<img width="480" height="437" alt="848dce14-de22-11ef-973b-0242ac120004_480x480" src="https://github.com/user-attachments/assets/28cf5d71-0329-4a82-bc7b-7dc8636dabca" />
+
 
 
 
