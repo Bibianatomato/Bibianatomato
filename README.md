@@ -1,4 +1,4 @@
-## Hi there 👋
+##
 
 <!--
 **Bibianatomato/Bibianatomato** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+<img width="1200" height="750" alt="6c450627aa5f4f01a67e75825b413b98" src="https://github.com/user-attachments/assets/a4d0783c-1aee-46fd-b580-5f39cd1230f2" />
+##⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀️⠀ ⠀ ⠀ ⠀ ⠀join us! at ~Para Para Kissaten~ ᓚᘏᗢ today!
